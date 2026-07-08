@@ -18,4 +18,4 @@
 + always in safe vietnamese/safe server
 + i'm very shy to talk😢
 
-★ if u wear TommyJarvis, JasonVoorhees or MichaelMyers skin, i'll go to int u ^ω^!!
+★ if u wear TommyJarvis, JasonVoorhees or MichaelMyers skin, i'll go to int u ^ω^!!!
